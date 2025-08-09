@@ -1,5 +1,13 @@
 ## Hi there 👋
 
+## Hello, 
+## To be honest,  your budget is not a little suitable for this project. But I will make an effort.
+## And In freelancer, I must pay 12% fee, so it's not suitable for me, so Can we discuss in telegram.
+## If you agree, please DM me, @arrow789012,
+## or email: ward1992912@outlook.com
+## Thank you.
+
+
 <!--
 **arrow67890/arrow67890** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
