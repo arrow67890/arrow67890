@@ -1,11 +1,11 @@
 ## Hi there 👋
 
-## Hello, 
-## To be honest,  your budget is not a little suitable for this project. But I will make an effort.
-## And In freelancer, I must pay 12% fee, so it's not suitable for me, so Can we discuss in telegram.
-## If you agree, please DM me, @arrow789012,
-## or email: ward1992912@outlook.com
-## Thank you.
+## so I suggest budget as 250.
+## so Let's discuss the project out of freelancer.
+## if you don't have telegram, don't you have discord account
+## this is my discord username is arrow7890
+## tele : arrow789012
+## email : ward1992912@outlook.com
 
 
 <!--
