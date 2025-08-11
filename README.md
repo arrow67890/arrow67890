@@ -1,11 +1,8 @@
 ## Hi there 👋
 
-## so I suggest budget as 250.
-## so Let's discuss the project out of freelancer.
-## if you don't have telegram, don't you have discord account
-## this is my discord username is arrow7890
-## tele : arrow789012
-## email : ward1992912@outlook.com
+## What do you want?
+## gmail?
+## tele username : arrow789012
 
 
 <!--
